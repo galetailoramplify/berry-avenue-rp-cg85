@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with break a brainrot egg secret Scripts, the #1 Script. Includes aimbot and auto-upgrade for
 
 
 
